@@ -63,7 +63,7 @@ Sahyadri is full of mysteries and science defying facts,this well confirms it !!
 
 ***AMBARKHANA(grain storage)***
 
-![](ambarkhana.jpg =100x100)
+![](ambarkhana.jpg |width=100)
 Three storage buildings namely Ganga,Yamuna,Saraswati for finger millet(नाचणी),Bajra and Rice. 
 Storage capacity of each building 
 25,000 khandi 
