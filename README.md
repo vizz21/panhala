@@ -95,7 +95,7 @@ The average bhakaris consumed by a single mavla was around 10-12 !!!
 
 <br>
 
--Later on around 1677-78vChhatrapati Shivaji Maharaj sent his own son Prince Sambhaji to the  mughal camp of Diler Khan.It was a tactic to keep an eye on the mughals;Yet upon returning Prince Sambhaji was charged with treason and kept under house arrest in Sajja Koti. Sajja Koti hosted the last meeting between both of them.And later on Chhatrapati Shivaji Maharaj was no more.
+-Later on around 1677-78 Chhatrapati Shivaji Maharaj sent his own son Prince Sambhaji to the  mughal camp of Diler Khan.It was a tactic to keep an eye on the mughals;Yet upon returning Prince Sambhaji was charged with treason and kept under house arrest in Sajja Koti. Sajja Koti hosted the last meeting between both of them.And later on Chhatrapati Shivaji Maharaj was no more.
 <br>
 View from Sajja Koti:
 	![](images/View.jpg)
