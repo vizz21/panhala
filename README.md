@@ -35,29 +35,34 @@ After the assasination of Afzal Khan in 1659,the Marathas went on a carnage .Cap
 Chhatrapati Shivaji Maharaj went to panhala after his heroics at the foothill of Pratapgad.
 It was Chhatrapati Shivaji Maharaj who renamed it PANHALGAD!
 
-** SITES **
+**SITES**
 
-ANDHAR BAAV 
+***ANDHAR BAAV***
+
+![](images/andhaar%20baav.jpg)
 
 HOW to kill enemies without fighting?
 The answer was simple,just add poison to the wells and ponds. To avoid this Andhar baav hosts a well at the ground floor and enemies often neglect it as a building.The first floor has a chor darwaza(emergency/secret door).The last floor hosts a room for the soldiers.
 Strangely this well is right next to the valley.Yet it has water all year around.
+
+![](images/urdu.jpg)
+
 Adil Shah built this well and we can see the urdu script at the centre of the structure.
 The urdu script written there roughly translates to “Till we have sun and moon,this well won't dry ”. About 800-900 years from its construction it still has water throughout 12 months .
 
-TEEN DARWAZA
+***TEEN DARWAZA***
+
+![](images/teen darwaza.jpg)
 	As the name suggests three doors were created to stop the enemies. Siddi Jauhar couldn’t penetrate these massive walls of basalt rock and lead.During the siege of panhalgad this door stood tall against the massive,long range cannons of the Siddhi; The massive hole on the front door is the proof of the event.
-
-
-
-The corridor of teen darwaza has a well “Vishnu Tirth  kund”(विष्णु तीर्थ कुंड)
+	The corridor of teen darwaza has a well “Vishnu Tirth  kund”(विष्णु तीर्थ कुंड)
 ५ फुट खोल !!
-“कितीही पाणी काढा,पातळी कमी होत नाही,पावसाळ्यात भरत नाही,आणि उन्हाळ्यात अटत नाही!!!
+***“कितीही पाणी काढा,पातळी कमी होत नाही,पावसाळ्यात भरत नाही,आणि उन्हाळ्यात अटत नाही!!!***
 Sahyadri is full of mysteries and science defying facts,this well confirms it !!!   
 
 
 
-AMBARKHANA(grain storage)
+***AMBARKHANA(grain storage)***
+
 Three storage buildings namely Ganga,Yamuna,Saraswati for finger millet(नाचणी),Bajra and Rice. 
 Storage capacity of each building 
 25,000 khandi 
