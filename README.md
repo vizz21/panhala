@@ -2,7 +2,11 @@
 
 
 Panhalgad 
-![]ambarkhana.jpg
+
+![](images/ambarkhana.jpg)
+
+
+
 A hill station,fort and thanks to britishers it is reachable by vehicle.
 In 1844 british demolished the TEEN DARWAZA (eastern door) hence making it easily accessible .
 This 350 acres of land now houses municipal offices, government schools and housing colonies.
