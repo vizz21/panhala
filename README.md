@@ -52,6 +52,7 @@ The urdu script written there roughly translates to ***“Till we have sun and m
 <br>About 800-900 years from its construction it still has water throughout 12 months .
 
 <br>
+
 ***TEEN DARWAZA***
 
 ![](images/teen%20darwaza.jpg)
@@ -94,7 +95,7 @@ The average bhakaris consumed by a single mavla was around 10-12 !!!
 
 <br>
 
--Chhatrapati Shivaji Maharaj sent his own son Prince Sambhaji to the  mughal camp of Diler Khan.It was a tactic to keep an eye on the mughals;Yet upon returning Prince Sambhaji was charged with treason and kept under house arrest in Sajja Koti. Sajja Koti hosted the last meeting between both of them.And later on Chhatrapati Shivaji Maharaj was no more.
+-Later on around 1677-78vChhatrapati Shivaji Maharaj sent his own son Prince Sambhaji to the  mughal camp of Diler Khan.It was a tactic to keep an eye on the mughals;Yet upon returning Prince Sambhaji was charged with treason and kept under house arrest in Sajja Koti. Sajja Koti hosted the last meeting between both of them.And later on Chhatrapati Shivaji Maharaj was no more.
 <br>
 View from Sajja Koti:
 	![](images/View.jpg)
@@ -108,16 +109,16 @@ The hill in the view is pavangad which served as a dummy fort to trick enemies .
 
 **Veer  Baji Prabhu Deshpande and Shiva Kashid**
 
-	In 1660,to avenge the previous battle Adilshah sent Siddi Jauhar to lay siege on Panhala and capture Chhatrapati Shivaji Maharaj. With 40,000 troops and a large food supply Siddi comfortably laid siege for over 6 months.Siddi was well aware about the scarcity of food on Panhala.The Marathas were on the verge of defeat ,Chhatrapati Shivaji Maharaj had to act quickly and wisely; “Marathas accepted defeat and Chhatrapati Shivaji Maharaj would thus surrender”,this news was enough to make the siege loose and enemy was unaware.On 12 july 1660 two palanquins were ready .The first  palanquin with Shiva Kashid towards the eastern door to meet siddi jauhar. Second  palanquin for Chhatrapati Shivaji Maharaj.Maharaj was reluctant to sacrifice his own soldier Shiva Kashid .But Shiva Kashid was firm and said proudly 
+In 1660,to avenge the previous battle Adilshah sent Siddi Jauhar to lay siege on Panhala and capture Chhatrapati Shivaji Maharaj. With 40,000 troops and a large food supply Siddi comfortably laid siege for over 6 months.Siddi was well aware about the scarcity of food on Panhala.The Marathas were on the verge of defeat ,Chhatrapati Shivaji Maharaj had to act quickly and wisely; “Marathas accepted defeat and Chhatrapati Shivaji Maharaj would thus surrender”,this news was enough to make the siege loose and enemy was unaware.On 12 july 1660 two palanquins were ready .The first  palanquin with Shiva Kashid towards the eastern door to meet siddi jauhar. Second  palanquin for Chhatrapati Shivaji Maharaj.Maharaj was reluctant to sacrifice his own soldier Shiva Kashid .But Shiva Kashid was firm and said proudly 
 ***“ न्हावी म्हणून जगण्या पेक्षा एक दिवस राजा म्हणून मरेल”.***
 <br>
-	Shiva Kashid fooled Siddi and thus gave valuable time for Maharaj to escape through the western side.Grabbing this opportunity Shivaji Maharaj with 600 mavalas and Baji Prabhu Deshpande rode towards vishalgad.
+Shiva Kashid fooled Siddi and thus gave valuable time for Maharaj to escape through the western side.Grabbing this opportunity Shivaji Maharaj with 600 mavalas and Baji Prabhu Deshpande rode towards vishalgad.
 Siddi understood the plot and dispatched 10,000 cavalry for the hunt.Shiva Kashid was killed for his bravery; 
 	
 	
-	<br>
-	![](images/ShivaKashid.jpg)
-	<br>
+<br>
+![](images/ShivaKashid.jpg)
+<br>
 	
 	
 	It was impossible to reach vishalgad with these many enemies on the hunt.42 kms from panhala at ghodkhind Baji Prabhu insisted on holding the khind and advised Raje to march towards Vishalgad.Chhatrapati Shivaji Maharaj was adamant ,he said they all should fight there itself and see it to the end.<br>
