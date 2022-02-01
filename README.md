@@ -46,8 +46,7 @@ Sahyadri is full of mysteries and science defying facts,this well confirms it !!
 
 
 AMBARKHANA(grain storage)
-
-	Three storage buildings namely Ganga,Yamuna,Saraswati for finger millet(नाचणी),Bajra and Rice. 
+Three storage buildings namely Ganga,Yamuna,Saraswati for finger millet(नाचणी),Bajra and Rice. 
 Storage capacity of each building 
 25,000 khandi 
 (1 khandi =20 sacks ) 
@@ -61,15 +60,13 @@ Eat hard and fight even harder ……..
 
 
 Sajja Koti
-
-	This was the place for meetings and tactics.Shiva Kashid the look alike of Chhatrapati Shivaji Maharaj rehearsed his disguise in this very place.The Maratha subjects of Panhalgad were unable to recognize Shiva Kashid and he would often roam the fort as Maharaj. Hence Siddhi and other commanders were unable to tell the difference.
+This was the place for meetings and tactics.Shiva Kashid the look alike of Chhatrapati Shivaji Maharaj rehearsed his disguise in this very place.The Maratha subjects of Panhalgad were unable to recognize Shiva Kashid and he would often roam the fort as Maharaj. Hence Siddhi and other commanders were unable to tell the difference.
 Chhatrapati Shivaji Maharaj sent his own son Prince Sambhaji to the  mughal camp of Diler Khan.It was a tactic to keep an eye on the mughals;Yet upon returning Prince Sambhaji was charged with treason and under house arrest in Sajja Koti. Sajja Koti hosted the last meeting between both of them.And later on Chhatrapati Shivaji Maharaj was on more.
 
 View from Sajja Koti:
 	The hill in the view is pavangad which served as a dummy fort to trick enemies . Part of guerrilla warfare(गनिमी कावा) tactics of Maharaj
 
 Veer  Baji Prabhu Deshpande and Shiva Kashid 
-
 	In 1660,to avenge the previous battle Adilshah sent Siddi Jauhar to lay siege on Panhala and capture Chhatrapati Shivaji Maharaj. With 40,000 troops and a large food supply Siddi comfortably laid siege for over 6 months.Siddi was well aware about the scarcity of food on Panhala.The Marathas were on the verge of defeat ,Chhatrapati Shivaji Maharaj had to act quickly and wisely; “Marathas accepted defeat and Chhatrapati Shivaji Maharaj would thus surrender”,this news was enough to make the siege loose and enemy was unaware.On 12 july 1660 two palanquin were ready .The first  palanquin with Shiva Kashid towards the eastern door to meet siddi jauhar. Second  palanquin for Chhatrapati Shivaji Maharaj.Maharaj was reluctant to sacrifice his own soldier Shiva Kashid .But Shiva Kashid was firm and said proudly 
 “ न्हावी म्हणून जगण्या पेक्षा एक दिवस राजा म्हणून मरेल”.
 	Shiva Kashid fooled Siddi and thus gave valuable time for Maharaj to escape through the western side.Grabbing this opportunity Shivaji Maharaj with 600 mavalas and Baji Prabhu Deshpande rode towards vishalgad.
