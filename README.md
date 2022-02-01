@@ -116,12 +116,12 @@ Shiva Kashid fooled Siddi and thus gave valuable time for Maharaj to escape thro
 Siddi understood the plot and dispatched 10,000 cavalry for the hunt.Shiva Kashid was killed for his bravery; 
 	
 	
-<br>
+
 ![](images/ShivaKashid.jpg)
 <br>
 	
 	
-	It was impossible to reach vishalgad with these many enemies on the hunt.42 kms from panhala at ghodkhind Baji Prabhu insisted on holding the khind and advised Raje to march towards Vishalgad.Chhatrapati Shivaji Maharaj was adamant ,he said they all should fight there itself and see it to the end.<br>
+It was impossible to reach vishalgad with these many enemies on the hunt.42 kms from panhala at ghodkhind Baji Prabhu insisted on holding the khind and advised Raje to march towards Vishalgad.Chhatrapati Shivaji Maharaj was adamant ,he said they all should fight there itself and see it to the end.<br>
 Baji Prabhu said boldly,
 ***“१ बाजी मेला तर लाख बाजी मिळतील ,पण लाखांचा पोशिंदा मिळणार नाय ” .***
 	<br>
