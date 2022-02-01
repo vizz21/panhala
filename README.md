@@ -48,11 +48,11 @@ Strangely this well is right next to the valley.Yet it has water all year around
 ![](images/urdu.jpg)
 
 Adil Shah built this well and we can see the urdu script at the centre of the structure.
-The urdu script written there roughly translates to “Till we have sun and moon,this well won't dry ”. About 800-900 years from its construction it still has water throughout 12 months .
+The urdu script written there roughly translates to ***“Till we have sun and moon,this well won't dry ”***. About 800-900 years from its construction it still has water throughout 12 months .
 
 ***TEEN DARWAZA***
 
-![](images/teen darwaza.jpg)
+![](images/teen%20darwaza.jpg)
 	As the name suggests three doors were created to stop the enemies. Siddi Jauhar couldn’t penetrate these massive walls of basalt rock and lead.During the siege of panhalgad this door stood tall against the massive,long range cannons of the Siddhi; The massive hole on the front door is the proof of the event.
 	The corridor of teen darwaza has a well “Vishnu Tirth  kund”(विष्णु तीर्थ कुंड)
 ५ फुट खोल !!
@@ -63,6 +63,7 @@ Sahyadri is full of mysteries and science defying facts,this well confirms it !!
 
 ***AMBARKHANA(grain storage)***
 
+![](ambarkhana.jpg =100x100)
 Three storage buildings namely Ganga,Yamuna,Saraswati for finger millet(नाचणी),Bajra and Rice. 
 Storage capacity of each building 
 25,000 khandi 
