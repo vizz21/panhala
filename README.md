@@ -11,7 +11,11 @@ A hill station,fort and thanks to britishers it is reachable by vehicle.
 In 1844 british demolished the TEEN DARWAZA (eastern door) hence making it easily accessible .
 This 350 acres of land now houses municipal offices, government schools and housing colonies.
 
+
+
 ![](images/buruj.jpg)
+
+
 
 **<br>History / Legend<br>**
 
@@ -31,6 +35,7 @@ After the assasination of Afzal Khan in 1659,the Marathas went on a carnage .Cap
 Chhatrapati Shivaji Maharaj went to panhala after his heroics at the foothill of Pratapgad.
 It was Chhatrapati Shivaji Maharaj who renamed it PANHALGAD!
 
+** SITES **
 
 ANDHAR BAAV 
 
