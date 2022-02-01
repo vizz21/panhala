@@ -53,7 +53,7 @@ The urdu script written there roughly translates to ***“Till we have sun and m
 ***TEEN DARWAZA***
 
 ![](images/teen%20darwaza.jpg)
-	As the name suggests three doors were created to stop the enemies. Siddi Jauhar couldn’t penetrate these massive walls of basalt rock and lead.During the siege of panhalgad this door stood tall against the massive,long range cannons of the Siddhi; The massive hole on the front door is the proof of the event.
+	<br>As the name suggests three doors were created to stop the enemies. Siddi Jauhar couldn’t penetrate these massive walls of basalt rock and lead.During the siege of panhalgad this door stood tall against the massive,long range cannons of the Siddhi; The massive hole on the front door is the proof of the event.<br>
 	The corridor of teen darwaza has a well “Vishnu Tirth  kund”(विष्णु तीर्थ कुंड)
 ५ फुट खोल !!
 ***“कितीही पाणी काढा,पातळी कमी होत नाही,पावसाळ्यात भरत नाही,आणि उन्हाळ्यात अटत नाही!!!***
@@ -65,7 +65,7 @@ Sahyadri is full of mysteries and science defying facts,this well confirms it !!
 
 ![](ambarkhana.jpg )
 <img src="images/ambarkhana" width="100">
-     //<img src="https://your-image-url.type" width="100"
+     
 Three storage buildings namely Ganga,Yamuna,Saraswati for finger millet(नाचणी),Bajra and Rice. 
 Storage capacity of each building 
 25,000 khandi 
