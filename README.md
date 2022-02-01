@@ -13,7 +13,8 @@ This 350 acres of land now houses municipal offices, government schools and hous
 
 ![](images/buruj.jpg)
 
-History / Legend
+**<br>History / Legend<br>**
+
 Panhalgad saw the tenure of various rulers.
 
 
